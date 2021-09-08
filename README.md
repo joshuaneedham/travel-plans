@@ -1,3 +1,3 @@
 # Travel Plans
 
-Travel Plans will help anyone plan an amazing road trip. We hope you enjoy the process and your trip.
+We hope you enjoy planning your next road trip with Travel Plans.
